@@ -8,4 +8,4 @@ Trần Trọng Vinh - 18CNTTD.
 Lê Thái Sơn - 17CNTT1.
 Lê Văn Long - 18CNTT4.
 Phetpho Panyanouvong - 18CNTT4.
-
+Trần Anh Hồng Quân - 18CNTT2
